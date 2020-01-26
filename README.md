@@ -1,0 +1,2 @@
+# bugabulass
+Naminage
